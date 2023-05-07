@@ -1,2 +1,0 @@
-ALFONSO SÁNCHEZ
-Hoy es 25/04/2023
